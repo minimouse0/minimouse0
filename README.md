@@ -1,6 +1,6 @@
 ### Minimouse
 
-Never ask me something, I know nothing about that
+Never ask me anything, I know nothing about that
 
 别问我我什么都不会
 
