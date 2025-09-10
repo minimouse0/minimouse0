@@ -12,4 +12,4 @@ Minimouse48 comes from China, who was an ordinary developer. Does well in Javasc
 从2022年4月开始为新月工作室管理mc服务器，后晋升为新月工作室副室长，负责mc服务器相关工作。  
 Have been processing Minecraft server for New Moon Studio since April 2022.
 
-就读于沈阳师范大学与富特海斯州立大学合办的国际商学院金融学专业。
+2025年9月从沈阳师范大学与富特海斯州立大学合办的国际商学院毕业，取得富特海斯州立大学的金融学专业学士学位。
